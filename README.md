@@ -1,0 +1,1 @@
+<img src="_MY_PICTURES/2022-11-18_135052.png" width=50% align="middle"><img src="_MY_PICTURES/2022-11-18_135316.png" width=50% align="middle"><img src="_MY_PICTURES/2022-11-18_135825.png" width=50% align="middle"><img src="_MY_PICTURES/2022-11-18_135839.png" width=50% align="middle"><img src="_MY_PICTURES/2022-11-18_135353.png" width=100% align="middle">
